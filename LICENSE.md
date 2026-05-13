@@ -1,4 +1,4 @@
-# 
+# best Inkscape for macOS Brush Pack | blend modes + auto-retouch offers the most advanced Inkscape for macOS brush, with blend modes and auto-retouch. Ideal for professional
 
 
 
